@@ -1,2 +1,1 @@
-# Xoxo
-some shit
+Просто открой KZero 
